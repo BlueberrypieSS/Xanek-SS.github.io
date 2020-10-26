@@ -1,4 +1,7 @@
-test lol
-<TEMP>
+Xanek SS is an Up-And-Coming server side. It is 100% original, and made with quality by the developers. 
 
-buy xanek ss https://discord.gg/esP2HNg
+
+Coming soon
+
+
+https://discord.gg/esP2HNg
